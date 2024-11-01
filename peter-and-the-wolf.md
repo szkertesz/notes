@@ -1,4 +1,6 @@
-# Prokofjev - Péter és a Farkas
+# Prokofiev - Peter and The Wolf
+
+## Hungarian transcript from the narration
 
 Egyik reggel, jó korán, amikor még a nagypapa aludt, Péter kinyitotta a kaput és kisétált a nagy zöld mezőre, habár nagypapa megtiltotta neki. De, ahogy te is tudod drága barátom, nem mindenki olyan szófogadó, mint te vagy... (nevetés)
 
@@ -34,7 +36,10 @@ A farkas megérezte, hogy elfogták, vadul ugrálni kezdett, próbált kiszabadu
 Most képzelj el egy győzelmi felvonulást. Péter megy legelől. Utána a vadászok viszik a farkast. A menet legvégén a nagypapa és a macska sétál peckesen. "Mi lett volna velünk, ha Péter nem fogja el a farkast?" rázta meg a fejét elégedetlenül a nagypapa.  "Milyen bátor barátok vagyunk ÉN és Péter! Nézd csak, mit fogtunk!"
 
 És ha valaki figyelmesen hallgatja, meghallja, hogy hápog a kacsa a farkas bendőjében, ugyanis a farkas a nagy sietségben egyben nyelte le őt.
-
-Forrás: https://www.facebook.com/100064871850569/posts/2958744664161711/; 
+Source: https://www.facebook.com/100064871850569/posts/2958744664161711/; 
 2020-04-23; [Irodalmi Kávéház](https://www.facebook.com/Irodalmi.Kavehaz)
+
+## Notes
+
+- [https://qso.com.au/uploads/regional_peter_and_the_wolf.pdf](PETER AND THE WOLF - QSO Learning 2017)
 
