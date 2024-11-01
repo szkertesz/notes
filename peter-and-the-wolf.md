@@ -35,8 +35,6 @@ Most képzelj el egy győzelmi felvonulást. Péter megy legelől. Utána a vad�
 
 És ha valaki figyelmesen hallgatja, meghallja, hogy hápog a kacsa a farkas bendőjében, ugyanis a farkas a nagy sietségben egyben nyelte le őt.
 
-Forrás: https://www.facebook.com/100064871850569/posts/2958744664161711/
+Forrás: https://www.facebook.com/100064871850569/posts/2958744664161711/; 
+2020-04-23; [Irodalmi Kávéház](https://www.facebook.com/Irodalmi.Kavehaz)
 
-[Irodalmi Kávéház](https://www.facebook.com/Irodalmi.Kavehaz)
-
-2020-04-23
