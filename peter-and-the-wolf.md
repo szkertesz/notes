@@ -131,6 +131,7 @@ A farkas megérezte, hogy elfogták, vadul ugrálni kezdett, próbált kiszabadu
 Most képzelj el egy győzelmi felvonulást. Péter megy legelől. Utána a vadászok viszik a farkast. A menet legvégén a nagypapa és a macska sétál peckesen. "Mi lett volna velünk, ha Péter nem fogja el a farkast?" rázta meg a fejét elégedetlenül a nagypapa.  "Milyen bátor barátok vagyunk ÉN és Péter! Nézd csak, mit fogtunk!"
 
 És ha valaki figyelmesen hallgatja, meghallja, hogy hápog a kacsa a farkas bendőjében, ugyanis a farkas a nagy sietségben egyben nyelte le őt.
+
 Source: https://www.facebook.com/100064871850569/posts/2958744664161711/;
 2020-04-23; [Irodalmi Kávéház](https://www.facebook.com/Irodalmi.Kavehaz)
 
